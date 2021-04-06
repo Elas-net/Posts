@@ -1,2 +1,2 @@
 # Posts
-Publicações criadas para as redes sociais do projeto
+ Publicações criadas para as redes sociais do projeto
